@@ -1,1 +1,3 @@
 # weeaboocroo
+
+welcome fellow otakus!
